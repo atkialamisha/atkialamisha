@@ -1,4 +1,5 @@
-## CSE @ Brac University · Engineering/Tech Intern @ T.K. Group of Induestries 
+## atkia lamisha
+CSE @ Brac University · Engineering/Tech Intern @ T.K. Group of Induestries 
 
 currently
 building whatever catches my interest!
