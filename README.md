@@ -1,4 +1,8 @@
-## Hi there 👋
+## CSE @ Brac University · Engineering/Tech Intern @ T.K. Group of Induestries 
+
+currently
+building whatever catches my interest!
+
 
 <!--
 **atkialamisha/atkialamisha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
